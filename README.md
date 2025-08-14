@@ -1,4 +1,4 @@
-# 👋 boogie-boogie!
+# 👋 heyaaaaaaa!
 ### ✨ me vanya, your friendly little trans girlie! 🌈
 - 👀 I’m interested in Meowies!
 - 🛡️ Human @ [Earth](https://earth.google.com)
