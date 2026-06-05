@@ -1,10 +1,13 @@
 # meowwww
 ### >///<
 ### ✨ me vanya, your friendly little trans girlie{^^}🏳️‍⚧️🌈
-- 👀 I’m interested in my wifey(ps: she is the best person ever met)! <span style="opacity: 0.5;">*annie*</span>
-- 🛡️ Human @ [Earth](https://earth.google.com)
-- 📫 How to reach me: [Twitter](https://x.com/girlvanya), [Insta](https://www.instagram.com/not_sane_vanya/), [Linkedin](https://www.linkedin.com/in/girlvanya/) 'most updated'
-- 😄 Pronouns: she/her
+- I’m interested in my wifey(ps: she is the best person ever met)! <span style="opacity: 0.5;">*annie*</span>
+- Human @ [Earth](https://earth.google.com)
+- How to reach me: [Twitter](https://x.com/girlvanya), [Insta](https://www.instagram.com/not_sane_vanya/), [Linkedin](https://www.linkedin.com/in/girlvanya/) 'most updated'
+- Pronouns: she/her
+- Donate[T~T]:=
+- BTC:
+- XMR: 
 <!--
 **girlvanya/girlvanya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
