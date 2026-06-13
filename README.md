@@ -9,7 +9,7 @@
 - Donate[T~T]:=
 - BTC:
 - XMR: 46tmR9WyaumjFoEQxS9uQPELo4iD9tgxNXTX5VD374cp7nws1doLKPsVa765ziqe14hi141rjqD1agV5yipVSHSk3cvLNJR
-- UPI: vanyakumari@fam
+- UPI: (can't tell rn)
 <!--
 **girlvanya/girlvanya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
