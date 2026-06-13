@@ -3,8 +3,8 @@
 ### ✨ me vanya, your friendly little trans girlie{^^}🏳️‍⚧️🌈
 - I’m interested in my wifey(ps: she is the best person ever met)! <span style="opacity: 0.5;">*annie*</span>
 - Human @ [Earth](https://earth.google.com)
-- How to reach me: [Twitter](https://x.com/girlvanya), [Insta](https://www.instagram.com/not_sane_vanya/), [Linkedin](https://www.linkedin.com/in/girlvanya/) 'most updated'
-- Website: [vanya.me](https://girlvanya.github.io/vanya.me/)
+- How to reach me: [Twitter](https://x.com/girlvanya), [Insta](https://www.instagram.com/not_sane_vanya/), [Linkedin](https://www.linkedin.com/in/girlvanya/) 
+- Website: [vanya.me](https://girlvanya.github.io/vanya.me/) 'most updated'
 - Pronouns: she/her
 - Donate[T~T]:=
 - BTC:
