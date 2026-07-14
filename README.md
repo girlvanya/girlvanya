@@ -3,7 +3,7 @@
 ### ✨ me vanya, your friendly little trans girlie{^^}🏳️‍⚧️🌈
 - I’m interested in my wifey(ps: she is the best person ever met)! <span style="opacity: 0.5;">*annie*</span>
 - Human @ [Earth](https://earth.google.com/web/@-78.97344765,101.39352651,-5873.47186252a,36350074.80903625d,35y,310.96425629h,0t,0r/data=CgRCAggBOgMKATBCAggASg0I____________ARAA)
-- Website: [vanya.me](https://girlvanya.github.io/vanya.me/) 'most updated'
+- Website: [vanya.me](https://girlvanya.github.io/vanya.me/) 
 - Pronouns: she/her
 - Donate[T~T]:=
 - BTC:
