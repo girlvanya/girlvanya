@@ -6,7 +6,6 @@
 - Website: [vanya.me](https://girlvanya.github.io/vanya.me/) 
 - Pronouns: she/her
 - Donate[T~T]:=
-- BTC:
 - XMR: 46tmR9WyaumjFoEQxS9uQPELo4iD9tgxNXTX5VD374cp7nws1doLKPsVa765ziqe14hi141rjqD1agV5yipVSHSk3cvLNJR
 - LTC: ltc1q82erhllncq0f8fgyxxmwdf6txed5zqecn9e0jv
 - BTC: (text me on telegram for btc address, simplycomplex298 )
