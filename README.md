@@ -5,11 +5,10 @@
 - Human @ [Earth](https://earth.google.com/web/@-78.97344765,101.39352651,-5873.47186252a,36350074.80903625d,35y,310.96425629h,0t,0r/data=CgRCAggBOgMKATBCAggASg0I____________ARAA)
 - Website: [vanya.me](https://girlvanya.github.io/vanya.me/) 
 - Pronouns: she/her
+- Discord: [notsane_vanya](https://discordapp.com/users/992881773530861579)
 - Donate[T~T]:=
 - XMR: 46tmR9WyaumjFoEQxS9uQPELo4iD9tgxNXTX5VD374cp7nws1doLKPsVa765ziqe14hi141rjqD1agV5yipVSHSk3cvLNJR
 - LTC: ltc1q82erhllncq0f8fgyxxmwdf6txed5zqecn9e0jv
-- BTC: (text me on telegram for btc address, simplycomplex298 )
-- UPI: (can't tell rn)
 <!--
 **girlvanya/girlvanya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
